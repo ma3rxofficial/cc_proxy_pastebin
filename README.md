@@ -1,2 +1,2 @@
 # cc_proxy_pastebin
-download online for free NOW!!!!!!!!!!!!!!! no sms or registration requied NO WAAAAAAAAAAAAAAAAAAAY!!!!!! download now!!!
+download online for free NOW!!!!!!!!!!!!!!! no sms or registration required NO WAAAAAAAAAAAAAAAAAAAY!!!!!! download now!!!
