@@ -1,2 +1,2 @@
 # cc_proxy_pastebin
-Proxy server for pastebin (for ComputerCraft 1.4-1.5)
+download online for free NOW!!!!!!!!!!!!!!! no sms or registration requied NO WAAAAAAAAAAAAAAAAAAAY!!!!!! download now!!!
